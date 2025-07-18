@@ -8,7 +8,6 @@ I'm a continuous learner with a deep and unwavering passion for Cloud, MLOps, De
 <br />
 
 
-
 <br />
 
 
